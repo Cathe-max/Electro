@@ -1,1 +1,1 @@
-Inspitation
+Inspiration
